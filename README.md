@@ -1,24 +1,24 @@
 
 # :sparkles::sparkles:蘑菇视频APP发布页:sparkles::sparkles:
 
- :heart: :point_right: 【最新地址1】 ：https://mogusp.github.io/mogushipina/  （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址1】 ：https://dizhifabuy.pages.dev/   （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址2】 ：https://mogusp.github.io/mogushipina/  （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址2】 ：https://dizhifabuy.pages.dev/    （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址3】 ：https://mogusp.github.io/mogushipina/   （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址3】 ：https://dizhifabuy.pages.dev/   （点击打开，看完记得收藏) 
  ------
- :heart: :point_right: 【最新地址4】 ：https://mogusp.github.io/mogushipina/  （点击打开，看完记得收藏)
+  :heart: :point_right: 【最新地址4】 ：https://dizhifabuy.pages.dev/    （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址5】 ：https://mogusp.github.io/mogushipina/ （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址5】 ：https://dizhifabuy.pages.dev/    （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址6】 : https://mogusp.github.io/mogushipina/  （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址6】 ：https://dizhifabuy.pages.dev/    （点击打开，看完记得收藏) 
  ------
- :heart: :point_right: 【最新地址7】 ：https://mogusp.github.io/mogushipina/  （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址7】 ：https://dizhifabuy.pages.dev/  （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址8】 ：https://mogusp.github.io/mogushipina/ （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址8】 ：https://dizhifabuy.pages.dev/     （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址9】 ： https://mogusp.github.io/mogushipina/ （点击打开，看完记得收藏)
-  ------
+ :heart: :point_right: 【最新地址9】 ：https://dizhifabuy.pages.dev/   （点击打开，看完记得收藏) 
+ ------
 
   
 #### （复制地址到浏览器中打开）：
